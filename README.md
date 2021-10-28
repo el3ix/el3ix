@@ -1,0 +1,5 @@
+- 👋 Hi, I’M RYu bUt tHaT NAme waS alREadY TakEN
+- 👀 I’m intErESTed iN c++ aNd eVERYthiNg thAt is AesThEtic.
+- 🌱 I’m curRENtly trYinG tO leArn C++ aND soMe basIC pRogramMinG.
+- 💞️ I’m lOokIng foRWaRd to bUy a CaR.
+- 📫 If YOu wAnna Text mE juSt tyPe me A MaiL i'Ll reaD IT : eliasmarte79@gmail.com
